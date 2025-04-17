@@ -1,0 +1,1 @@
+![Hello Kitty](https://media.discordapp.net/attachments/1277824696137551883/1362403816036761640/image.png?ex=680244ed&is=6800f36d&hm=a39a9f213d7b499904475c4ec2ad4567c1b0003b28f6b1dafe8f3775c930e664&=&format=webp&quality=lossless&width=966&height=541)
